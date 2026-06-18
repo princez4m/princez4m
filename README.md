@@ -11,6 +11,12 @@ ${\textsf{\color{#BF3B8A}⊰ }}$ <a href="https://hits.sh/github.com/princez4m/"
 
 [![235-sin-titulo-20260618165803.png](https://i.postimg.cc/6qW3ChMM/235-sin-titulo-20260618165803.png)](https://postimg.cc/YGPMHQKF)
 
+<a href="https://princezamm.atabook.org/">
+<img src="https://i.postimg.cc/Hx9yXn9M/236-sin-titulo-20260618171354.png" width="190"> <a
 
+
+<a href="https://en.pronouns.page/@cuteprincezam">
+<img src="https://i.postimg.cc/N019vFVT/236-sin-titulo-20260618175444.png" width="190">
+</a>
 
 </div>
