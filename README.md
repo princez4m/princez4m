@@ -9,5 +9,8 @@ ${\textsf{\color{#BF3B8A}⊰ }}$ <a href="https://hits.sh/github.com/princez4m/"
 
 <a href="https://hits.sh/github.com/princez4m/"><img alt="Hits" src="https://hits.sh/github.com/princez4m.svg?style=plastic&label=(%3E%EF%B8%BF%3C%EF%BD%A1)&extraCount=99&color=431E44&labelColor=BA4B90"/></a>
 
+[![235-sin-titulo-20260618165803.png](https://i.postimg.cc/6qW3ChMM/235-sin-titulo-20260618165803.png)](https://postimg.cc/YGPMHQKF)
+
+
 
 </div>
