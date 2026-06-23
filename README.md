@@ -14,3 +14,6 @@ ${\textsf{\color{#FEF7D0}ㅤㅤ୨୧ˇ tαken ♡ 𝚜he / h𝚎 }}$
 ${\textsf{\color{#B57BB8}୨ ⌣⌣⌣ㅤㅤㅤ𝙿rinc𝚎zαm (the character) 𝚏ict𝚔in 𖹭ㅤㅤㅤ⌣⌣⌣ ୧}}$
 
 
+[![pink.gif](https://i.postimg.cc/kMVcYjyy/pink.gif)](https://postimg.cc/YjHYhzZ4)
+
+[![npa5u5.gif](https://i.postimg.cc/5yPkKNQh/npa5u5.gif)](https://postimg.cc/CnqNz0N7)
