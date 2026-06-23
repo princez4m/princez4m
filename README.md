@@ -20,3 +20,5 @@ ${\textsf{\color{#B57BB8}୨ ⌣⌣⌣ㅤㅤㅤ𝙿rinc𝚎zαm (the character) 
 
 <a href="https://princezamm.atabook.org/"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=13&duration=1&pause=5000&color=F3B0BB&center=true&vCenter=true&width=200&height=30&lines=atabook" alt="Typing SVG" /></a> ${\textsf{\color{#FEF7D0}ˇ 𖹭 ˇ }}$
 <a href="https://en.pronouns.page/@cuteprincezam"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=13&duration=1&pause=5000&color=B57BB8&center=true&vCenter=true&width=200&height=30&lines=prns.page" alt="Typing SVG" /></a> 
+
+<a href="https://cutez4m.carrd.co/"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=13&duration=1&pause=5000&color=6075B8&center=true&vCenter=true&width=200&height=30&lines=carrd" alt="Typing SVG" /></a> 
