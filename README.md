@@ -1,24 +1,20 @@
 <div align="center">
 
-[![4ivpy5.png](https://i.postimg.cc/fTcVdtXq/4ivpy5.png)](https://postimg.cc/TpP2MPtn)
+[![red-(1).gif](https://i.postimg.cc/wB5F85rx/red-(1).gif)](https://postimg.cc/HJxbbMHF)
 
-${\textsf{\color{#B57BB8}𝚂hαm𝚎, guiltin𝚎ss αnd w𝚎αkn𝚎ss }}$
+${\textsf{\color{#FFFFDE}( ˃ ▿ ˂ )}}$
 
-[![247-sin-titulo-20260623160721.png](https://i.postimg.cc/bvGMs5R3/247-sin-titulo-20260623160721.png)](https://postimg.cc/WDvSyXCk)
+${\textsf{\color{#E2A5B5}you and me are meant 2 be ! 𖹭}}$
 
-<a href="https://hits.sh/github.com/princez4m/"><img alt="Hits" src="https://hits.sh/github.com/princez4m.svg?style=flat-square&label=(%CB%B5%CB%8A%E1%AF%85%CB%8B%CB%B5)%20%CB%87&extraCount=69999&color=F3B0BB&labelColor=FEF7D0"/></a>
+[![261-sin-titulo-20260703123339.png](https://i.postimg.cc/nVDTYJHg/261-sin-titulo-20260703123339.png)](https://postimg.cc/F1hjNwkV)
 
-${\textsf{\color{#F3B0BB}𓂃 ˇㅤㅤ𝚉αm  𖹭r  ѕpαc𝚎y  𖹭 }}$
-${\textsf{\color{#FEF7D0}ㅤㅤ୨୧ˇ tαken ♡ 𝚜he / h𝚎 }}$
+[![262-sin-titulo-20260703125422.png](https://i.postimg.cc/9Mr4tCZk/262-sin-titulo-20260703125422.png)](https://postimg.cc/9RHFc3xP)
 
-${\textsf{\color{#B57BB8}୨ ⌣⌣⌣ㅤㅤㅤ𝙿rinc𝚎zαm (the character) 𝚏ict𝚔in 𖹭ㅤㅤㅤ⌣⌣⌣ ୧}}$
+[![tumblr-fef73f6e41bd21177a19e52d98418cf9-51447432-250.gif](https://i.postimg.cc/gkYWf4Bk/tumblr-fef73f6e41bd21177a19e52d98418cf9-51447432-250.gif)](https://postimg.cc/dDSpCRYz)
 
+<a href="https://princezamm.atabook.org/"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=13&duration=1&pause=5000&color=FFF4D3&center=true&vCenter=true&width=200&height=30&lines=atabook" alt="Typing SVG" /></a> ${\textsf{\color{#FFFFDE}ˇ 𖹭 ˇ }}$
+<a href="https://en.pronouns.page/@cuteprincezam"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=13&duration=1&pause=5000&color=FED7C7&center=true&vCenter=true&width=200&height=30&lines=prns.page" alt="Typing SVG" /></a> 
 
-[![pink.gif](https://i.postimg.cc/kMVcYjyy/pink.gif)](https://postimg.cc/YjHYhzZ4)
+<a href="https://cutez4m.carrd.co/"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=13&duration=1&pause=5000&color=E2A5B5&center=true&vCenter=true&width=200&height=30&lines=carrd" alt="Typing SVG" /></a> 
 
-[![hnbela.gif](https://i.postimg.cc/pXF5YYMb/hnbela.gif)](https://postimg.cc/mtTrT9r8)
-
-<a href="https://princezamm.atabook.org/"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=13&duration=1&pause=5000&color=F3B0BB&center=true&vCenter=true&width=200&height=30&lines=atabook" alt="Typing SVG" /></a> ${\textsf{\color{#FEF7D0}ˇ 𖹭 ˇ }}$
-<a href="https://en.pronouns.page/@cuteprincezam"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=13&duration=1&pause=5000&color=B57BB8&center=true&vCenter=true&width=200&height=30&lines=prns.page" alt="Typing SVG" /></a> 
-
-<a href="https://cutez4m.carrd.co/"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=13&duration=1&pause=5000&color=6075B8&center=true&vCenter=true&width=200&height=30&lines=carrd" alt="Typing SVG" /></a> 
+</div>
