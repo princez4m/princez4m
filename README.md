@@ -15,7 +15,7 @@ ${\textsf{\color{#E2A5B5}y𖹭u αnd me are m𝚎αnt 2 be !}}$
 **${\textsf{\color{#FED7C7}r𝚎αd prns.pag𝚎 befor𝚎 int, pls }}$**
 
 <a href="https://princezamm.atabook.org/"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=13&duration=1&pause=5000&color=FFF4D3&center=true&vCenter=true&width=200&height=30&lines=atabook" alt="Typing SVG" /></a> ${\textsf{\color{#FFFFDE}ˇ 𖹭 ˇ }}$
-<a href="https://en.pronouns.page/@cuteprincezam"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=13&duration=1&pause=5000&color=FED7C7&center=true&vCenter=true&width=200&height=30&lines=prns.page" alt="Typing SVG" /></a> 
+<a href="https://en.pronouns.page/@rejected"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=13&duration=1&pause=5000&color=FED7C7&center=true&vCenter=true&width=200&height=30&lines=prns.page" alt="Typing SVG" /></a> 
 
 <a href="https://cutez4m.carrd.co/"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=13&duration=1&pause=5000&color=E2A5B5&center=true&vCenter=true&width=200&height=30&lines=carrd" alt="Typing SVG" /></a> 
 
