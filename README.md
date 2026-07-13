@@ -6,7 +6,7 @@
 
 ${\textsf{\color{#F3F3F3}My Suα . . . ૮₍ ˶ᵔ ᵕ ᵔ˶ ₎ა}}$
   
-  [![HM4OBi-Za-IAAOFJg.jpg](https://i.postimg.cc/kD37dr0F/HM4OBi-Za-IAAOFJg.jpg)](https://postimg.cc/y3PMFGYk)
+  [![HMa-O7z-Sa-UAARTvh.jpg](https://i.postimg.cc/yYjSyv0V/HMa-O7z-Sa-UAARTvh.jpg)](https://postimg.cc/MvcTW0s4)
   
 <a href="https://princezamm.atabook.org/"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=13&duration=1&pause=5000&color=F5DEF0&center=true&vCenter=true&width=200&height=30&lines=atabook" alt="Typing SVG" /></a> <a href="https://en.pronouns.page/@rejected"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=13&duration=1&pause=5000&color=4A7A7C&center=true&vCenter=true&width=200&height=30&lines=prns.page" alt="Typing SVG" /></a>
 
