@@ -4,7 +4,7 @@
 
 [![white.png](https://i.postimg.cc/BvhkyqXp/white.png)](https://postimg.cc/xkz6NVGN)
 
-${\textsf{\color{#F3F3F3}My Suα . . . ૮₍ ˶ᵔ ᵕ ᵔ˶ ₎ა}}$
+${\textsf{\color{#F3F3F3}My god, my universe.ㅤˇ}}$
   
   [![HMa-O7z-Sa-UAARTvh.jpg](https://i.postimg.cc/yYjSyv0V/HMa-O7z-Sa-UAARTvh.jpg)](https://postimg.cc/MvcTW0s4)
   
