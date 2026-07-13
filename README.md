@@ -2,7 +2,7 @@
 
 [![auzn3a.png](https://i.postimg.cc/QMrSK6DL/auzn3a.png)](https://postimg.cc/QF0cRJVS)
 
-[![pink.gif](https://i.postimg.cc/QMV0Fcd7/pink.gif)](https://postimg.cc/bGcQMDbY)
+[![white.png](https://i.postimg.cc/BvhkyqXp/white.png)](https://postimg.cc/xkz6NVGN)
 
 ${\textsf{\color{#F3F3F3}My Suα . . . ૮₍ ˶ᵔ ᵕ ᵔ˶ ₎ა}}$
   
