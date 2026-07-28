@@ -2,7 +2,9 @@
 
 [![Tumblr-l-462298326330246.png](https://i.postimg.cc/wBKc9mBv/Tumblr-l-462298326330246.png)](https://postimg.cc/k2ctcDK3)
 
-${\textsf{\color{#EBEBEB}𝐌y heart is yours}}$
+${\textsf{\color{#EBEBEB}᭥ᩙㅤㅤ𝐌y heart is yours}}$
+
+${\textsf{\color{#fefefe}ㅤㅤ𝐘ou're the only thing i think abtㅤᗢ }}$
 
 [![25f955be2549573e01f99da8a84fb095.jpg](https://i.postimg.cc/bww4140M/25f955be2549573e01f99da8a84fb095.jpg)](https://postimg.cc/3dzLTScC)
 
